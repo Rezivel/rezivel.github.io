@@ -1,1 +1,0 @@
-# rezivel.github.io
